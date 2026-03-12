@@ -1,1 +1,244 @@
-# MUSICA
+Promessa, IDUA - SOLTANTO SE (feat. Sayf).
+Promessa, Depha Beat - DA DIO.
+Neza - Sputacchia e Ride (feat. Promessa).
+Promessa - NULLA DI BELLO (feat. 22simba & Flaco G).
+Latrelle, Fritu - Lo Schianto (feat. Promessa).
+Ele A - Buon Esempio (feat. Promessa & Sayf).
+Emis Killa - EGOISTA (feat. Ele A & Promessa).
+Low-Red, ilovethisbeat - Batman (feat. RRARI DAL TACCO).
+Artie 5ive - DAVVERODAVVERO.
+Shiva - Take 6.
+Low-Red, ilovethisbeat - Trasparente.
+
+22simba - Old Fashion (feat. Promessa & Flaco G).
+Emis Killa, Jake La Furia - Sparami (feat. Salmo & Fabri Fibra).
+TY1 - MONOPOLIO (feat. Kid Yugi & Nerissima Serpe).
+Kid Yugi - 
+Jake La Furia - L’amore e la violenza (feat. Paky & 8blevrai).
+SEVEN 7oo - SEVEN 7oo (feat. Rondodasosa, Sacky, Vale Pain, Neima Ezza, Kilimoney, Keta & Nko).
+Skinny - MONOPOLIO.
+Don Pero - Tech Pack (feat. Kid Yugi).
+Vale Pain, Nko - OPPS.
+Young Hash - Four Seasons (feat. MamboLosco).
+Yele - Malattia (feat. Aira).
+Medy - Arai (feat. Capo Plaza).
+Aira - Leggendario.
+Maury North - PARGOLI (feat. Aira).
+Maury North - highforever (feat. Glocky).
+Charlie Charles - Bimbi (feat. Izi, Rkomi, Sfera Ebbasta, Tedua & Ghali).
+Keta, Manny Troublez - QATAR (feat. Baby Gang).
+Neza, Nabi - Felicità 2.
+Il Ghost - ADRENALINA.
+Zefe - Valentino Rossi.
+MINUR , Simba La Rue - Go Go Jack.
+Paky - 100 Uomini.
+Helmi - MATTONI (feat. 22simba).
+Helmi - MAKTOUB (feat. Sayf).
+Sgribaz, Helmi, Enomoney - IN TOWN.
+Suspect CB - Cattive Abitudini.
+Helmi - PROCESS (feat. Vaz Tè, Nader Shah, Izi & III Rave).
+Izi - Distrutto.
+Rondodasosa - IDGAF.
+Lacrim - Budokai (feat. Niky Savage).
+Aira - Potere (feat. Tony Boy).
+J.Cole - Run A Train (feat. Future).
+Niky Savage - CIGNI (feat. IvanBi).
+Vale Pain - 6 LONTANA.
+Young Hash, Andry The Hitmaker - Zito (feat. Emis Killa).
+Rayan, Intifaya - Stanza dei ricordi.
+Fudasca - INFAMI (feat. Side Baby, Close Listen & Ketama126).
+Rhove - La Famiglia (feat. 8blevrai, Kassimi, Yunes LaGrintaa, Sisco, Neza & Nabi).
+Helmi - TALENTO DELLA ZONA (feat. Uzi Lvke).
+Kevin Mopao - Crack Story (feat. Rasty Kilo).
+Nabi - MANESKIN MELODIA.
+Melons, Ddusi - Statistica (feat. Neves17).
+Pyrex - COME UN LADRO (feat. Shiva).
+Pyrex - DARKMONEY (feat. Sfera Ebbasta).
+Pyrex - FLASH FLASH.
+DrefGold - ALLERTA METEO (feat. Pyrex).
+Dani Faiv, 20Jac, LayZ - BAMBINO OBESO (feat. Pyrex).
+Pyrex - SENZA ALI (feat. Icy Subzero).
+Oni One - LAMBORED (feat. Flaco G).
+Fabri Fibra - Sbang (feat. Noyz Narcos).
+Disme - Vattene (feat. Massimo Pericolo).
+Kevin Mopao - Na Na Na.
+Lazza - JEFE.
+VillaBanks & Andry The Hitmaker & Linch - Il Doc 6 (feat. Niky Savage, Young Hash & Flaco G).
+Melons, Sick Luke - CASE DELL’ORRORE.
+Guè - Immortale (feat. Sfera Ebbasta).
+Geolier - ARCOBALENO (feat. Anuel AA).
+Geolier - A NAPOLI NON PIOVE.
+Geolier - 2 GIORNI DI FILA (feat. ANNA & Sfera Ebbasta).
+Lazza - 3 PALI.
+Paky - Ancora Tra (feat. Baby Gang & Shiva).
+Geolier - OLE’ (feat. Kid Yugi).
+Kid Yugi - Berserker.
+Paky - Tardi (feat. Sfera Ebbasta).
+Nko - Warzone (feat. Artie 5ive & Capo Plaza & Nerissima Serpe).
+Lacrim - Rock (feat. Baby Gang).
+Dark Polo Gang - PUSSY (feat. Lazza & Salmo).
+Shiva, Sfera Ebbasta - COME SE NON FOSSI NEI GUAI.
+ANNA - ABC (feat. Tony Boy & thasup).
+Tony Boy - Codeine (feat. ANNA).
+Shiva - Polvere (feat. Tony Boy).
+thasup - s!r! (feat. Lazza & Sfera Ebbasta).
+Lazza - SENZA RUMORE (Concertos).
+Lazza - J.
+Lazza - ALYX (feat. Capo Plaza).
+Shiva - Vorrei (feat. Lazza).
+Paky - Dio Non C’è (feat. Alessandra Amoroso).
+FSK SATELLITE - SETTIMANA AL CALDO.
+Luciano - Pretty Woman (feat. Shiva).
+Dark Polo Gang - DONDURE’ (feat. Ski & Wok).
+Lazza - CLEAN (feat. Tony Effe).
+Emis Killa - Soli (Assieme).
+Emis Killa - SERPE (feat. Capo Plaza).
+Emis Killa - MAMA.
+Gianni Bismark, Sick Luke - La Strada È Nostra (feat. Geolier).
+Baby Gang - Bentley (feat. J Lord & Simba La Rue).
+MV Killa - RSQ8 (feat. Ghali).
+Frezza - CHAMPIONS LEAGUE.
+Rue Diego - MOMO DESIGN (feat. Im Envy).
+Emis Killa, Jake La Furia - Malandrino.
+Emis Killa, Jake La Furia - No Insta (feat. Lazza).
+Emis KIlla, Jake La Furia - Renè & Francis.
+Achille Lauro - Amore Disperato.
+Masked Wolf - Astronaut In The Ocean.
+Sfera Ebbasta - Tutti Scemi.
+Sfera Ebbasta - Zero.
+Sfera Ebbasta - Orologi.
+Sfera Ebbasta - Ciny.
+Sfera Ebbasta, Shiva - SNTMNG.
+Kid Yugi - Push It (feat. ANNA).
+Vegas Jones - 500 bianca (feat. Slings).
+Digital Astro - PANINARO (feat. Artie 5ive & Tony Boy).
+Simba La Rue - FEAT. SIMBA LA RUE.
+22simba - Fanculo (feat. Marracash).
+Shiva - Charts Global.
+Capo Plaza - Resta Ancora Un Po.
+Rvssian - CHIEF KEEF (feat. Sfera Ebbasta & Skillibeng).
+Sick Luke - NOTTE SCURA (feat. Gazzelle & Tedua).
+18K, d/rose - Blue Punisher (feat. Silent Bob).
+Lacrim - Delicato (feat. Luchè).
+Lacrim - Jacques & Renè (feat. Guè).
+Lacrim - Silvio B. (feat. Noyz Narcos).
+Kuremino - Garage Ballas (feat. Diss Gacha).
+18K - Buttare, buttare (feat. Latrelle).
+Capo Plaza - + A Nulla (feat. Achille Lauro).
+Capo Plaza - Rivincita.
+Capo Plaza - Cose Più Grandi Di Me.
+Capo Plaza - X Sempre.
+Capo Plaza - Ti Fidi Di Me.
+Capo Plaza - 4U.
+Rame, Moli - GIOVANI A META’ (feat. Nabi).
+Sadturs, KIID - CHALLENGER (feat. Rondodasosa).
+Guè, Cookin Soul - Spendin (feat. Marracash).
+Irama - Buio (feat. Giorgia):
+Baby Gang - Mentalité RMX (feat. Neves17).
+Tony Effe - Colpevole RMX (feat. Geolier).
+Pyrex - FINEST (feat. Tedua).
+Lito - CHEST BUSTER.
+Lito - LA TRAP NON MUORE MAI.
+Lito - WE TAKIN OVA.
+Sick Luke - DREAM TEAM (feat. Capo Plaza, Tedua, Shiva & Pyrex).
+J Lord - Pelle D’Oca (feat. Massimo Pericolo).
+Don Joe - PELLE D’OCA (feat. Medy).
+Vegas Jones - PELLE D’OCA.
+Kid Yugi - Chuck Norris (feat. RRARI DAL TACCO, Papa V & Nerissima Serpe).
+Kid Yugi - Bullet Ballet (feat. Artie 5ive).
+Kid Yugi - Per il Sangue Versato.
+Sacky - FAIDA (feat. Neima Ezza & Vale Pain).
+Kid Yugi - La Violenza Necessaria (feat. Shiva).
+Noyz Narcos, Sine - IL MIO AMICO (feat. Kid Yugi).
+Noyz Narcos, Sine - SNIPER (feat. Madame).
+Noyz Narcos, Sine - DRUGSTORE (feat. Guè).
+THE KID LAROI - I’M SO IN LOVE WITH YOU.
+Vegas Jones - Nuove Regole (feat. IZI).
+Vegas Jones - Curriculum (feat. Il Tre).
+Medy - Ma Jolie (feat. ANNA).
+Nabi - Notte in Caserma.
+Neza - Timore (feat. Nabi).
+Neza - Pararara.
+Nabi - WROOM WROOM.
+Kero - OSCURO.
+Nabi - ZWAG.
+Emis Killa - No police no problem (feat. J Lord).
+Clementino - Eclissi (feat. J Lord & Speranza).
+TY1 - 6 MESI (feat. J Lord, Franco126 & Guè).
+Kanye West, Rick Ross - Devil In A New Dress.
+J Lord - Nun Er Io.
+J Lord - She Don’t Like It.
+Moderup - Peccati (feat. J Lord).
+Rayan, Intifaya - Dry e vai (feat. J Lord).
+Vaz Tè - Tritolo (feat. DrefGold).
+Glocky, Faneto - ADDERALL.
+Dark Polo Gang - BIBERON (feat. ANNA & DrefGold).
+MILES - con me (feat. thasup).
+Luchè - Ginevra (feat. Geolier).
+Vale Pain - SHOTTA 3 (feat. Glocky).
+Vale Pain - Pain.
+Vale Pain - X T3.
+Tony Boy - Progressi (feat. Vale Pain).
+Vale Pain - SOLO.
+Melons, Sick Luke - NUVOLE ROSSE (feat. LILCR).
+ DBZ - TRAP IN GIRO (feat. Kuremino, Scaccia & Kevin Mopao).
+DBZ - AMARA (feat. Over Lapa).
+DBZ - CIN CIN (feat. Young Hash).
+VillaBanks, Andry The Hitmaker & Linch - Il Doc 6 (feat. Niky Savage, Young Hash & Flaco G).
+Jamil - SICARIO (feat. Niko Pandetta).
+Niko Pandetta - Nata Vota.
+Flaco G - GDE WOW (feat. Shiva).
+Flaco G - TOUR.
+Flaco G, 4TheNight - QUELLI COME ME (feat. 22simba).
+Sadturs, KIID - MARMOCCHIO (feat. Papa V & Jake La Furia).
+Sfera Ebbasta - Tik Tok RMX (feat. Guè, Geolier, Marracash & Paky).
+Kevin Mopao - White (feat. Papa V & Nerissima Serpe).
+Vacca - Ne Voglio Di Più (feat. Jamil).
+Myto - Street Bastard (feat. Jake La Furia).
+Kilimoney - UNO, DUE E TRE (feat. Neima Ezza).
+Night Skinny - Street Advisor (feat. Noyz Narcos, Marracash & Capo Plaza).
+Jamil - LEADER (feat. Jake La Furia).
+Jamil - MAMMA SCUSA.
+Niko Pandetta - 123 (feat. MamboLosco).
+Niko Pandetta - MINORILE (feat. Baby Gang).
+Uzi Lvke - Strade Unite (feat. Helmi & emanuelino).
+Uzi Lvke - Cantine 2.
+Tony Boy - Umile (feat. Shiva).
+Salmo - 10 AD.
+Guè, Cooking Soul - Loquito (feat. Celine G).
+Nabi - Guerrila.
+Nitro, Low Kidd - DELLAMORTE DELLAMORE (feat. Salmo & Sally Cruz).
+Salmo - S.A.L.M.O.
+Coez - Crack (feat. Salmo & Massimo Pericolo).
+Salmo - Giuda.
+Salmo - BEATCOIN.
+thasup - sw1n6o (feat. Salmo).
+Emis Killa - ROBB STARK (feat. Salmo).
+Salmo - IL FIGLIO DEL PRETE.
+Salmo - FLASHBACK
+Salmo - LUNEDÌ.
+Gianni Bismark - Certezza (feat. Massimo Pericolo.
+Massimo Pericolo - Non Parlarmi (Outro).
+Shiva - Syrup.
+Kid Yugi - 6SEI6 (feat. Massimo Pericolo).
+Night Skinny - Scale (feat. Luchè).
+Sgribaz - Flag (feat. PRACI & Luchetto).
+Travis Scott - Maria I’m Drunk (feat. Justin Bieber & Young Thug).
+Gunna - Who You Foolin.
+Kodak Black - No Flockin’.
+Nardo Wick - Dah Dah DahDah.
+Travis Scott - SKITZO (feat. Young Thug).
+Gunna - prada dem (feat. Offset).
+Don Toliver - NEW DROP.
+Lil Uzi Vert - Chill Bae.
+ANNA - BBE (feat. Lazza).
+Digital Astro - SPENDERE (feat. Simba La Rue).
+Ernia - FELLINI (feat. Kid Yugi).
+Lil Wayne - Let It All Work Out.
+Sadturs, KIID - DIVERSITA’ (feat. ANNA & Glocky).
+Lil Wayne - A Milli.
+Slings, Finesse - X (feat. VillaBanks).
+Guè, Cookin Soul - Pimp101.
+ 
+
+
