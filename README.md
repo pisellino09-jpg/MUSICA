@@ -9,7 +9,6 @@ Low-Red, ilovethisbeat - Batman (feat. RRARI DAL TACCO).
 Artie 5ive - DAVVERODAVVERO.
 Shiva - Take 6.
 Low-Red, ilovethisbeat - Trasparente.
-
 22simba - Old Fashion (feat. Promessa & Flaco G).
 Emis Killa, Jake La Furia - Sparami (feat. Salmo & Fabri Fibra).
 TY1 - MONOPOLIO (feat. Kid Yugi & Nerissima Serpe).
