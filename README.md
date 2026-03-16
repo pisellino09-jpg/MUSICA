@@ -12,7 +12,6 @@ Low-Red, ilovethisbeat - Trasparente.
 22simba - Old Fashion (feat. Promessa & Flaco G).
 Emis Killa, Jake La Furia - Sparami (feat. Salmo & Fabri Fibra).
 TY1 - MONOPOLIO (feat. Kid Yugi & Nerissima Serpe).
-Kid Yugi - 
 Jake La Furia - L’amore e la violenza (feat. Paky & 8blevrai).
 SEVEN 7oo - SEVEN 7oo (feat. Rondodasosa, Sacky, Vale Pain, Neima Ezza, Kilimoney, Keta & Nko).
 Skinny - MONOPOLIO.
